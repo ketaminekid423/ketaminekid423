@@ -16,6 +16,6 @@
 
 - 📫 How to reach me: 423ketaminekid423@gmail.com
 
-- ⚡ Fun fact: ...ive been forced under a proverbial technological rock for the past 9.5yra
+- ⚡ Fun fact: ...ive been forced under a proverbial technological rock for the past 9.5yrs
 
 
